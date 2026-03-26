@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-GACC860629MBCRRR02
+GACC860629MBCRRR02
